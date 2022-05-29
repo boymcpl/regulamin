@@ -1,0 +1,17 @@
+# Regulamin Serwera oraz strony internetowej
+
+
+## Postanowienia ogólne 
+
+## Odpowiedzialność administracji
+
+## Taryfikator kar
+
+## Zakazy
+
+## Płatności
+
+## Polityka prywatności
+
+
+
